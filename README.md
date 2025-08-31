@@ -2,6 +2,7 @@
 
 <img width="1919" height="947" alt="Screenshot 2025-08-31 145643" src="https://github.com/user-attachments/assets/34a680eb-659c-4733-b816-ba215d2b4932" />
 
+<img width="1912" height="880" alt="Screenshot 2025-08-31 153306" src="https://github.com/user-attachments/assets/2c3c8c98-43dc-4b27-a1a1-5a1e757605c4" />
 
 
 
